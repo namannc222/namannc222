@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **GEN A.I., Data Science**
 
-- 💬 Ask me about **BUISENESS INOVATION**
+- 💬 Ask me about **BUSINESS INNOVATION BRAIN STORMING**
 
 - 📫 How to reach me **namanofficial222@gmail.com**
 
