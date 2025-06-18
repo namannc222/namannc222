@@ -3,11 +3,11 @@
 
 - 🔭 I’m currently working on **Hospital Management And ML Integration**
 
-- 🌱 I’m currently learning **GEN A.I., Data Science**
+- 🌱 I’m currently exploring a lot of **AI&ML**
 
 - 💬 Ask me about **BUSINESS INNOVATION**
 
-- 📫 How to reach me **namanofficial222@gmail.com**
+- 📫 How to reach me **namanchourasiya2211@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
